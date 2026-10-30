@@ -6,7 +6,7 @@ im switching to gitlab
 "macarenasandwichburger" this throwaway account IS actually one of my real accounts
 i can get proof of me owning z3r01122, z3r0265return and z3r0265 not so much
 z3r01122 is older then all of the others
-# THIS IS PROMOTION
+# THIS IS A PROMOTION
 
 i have a website!!
 z3r0265.dpdns.org
